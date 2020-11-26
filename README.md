@@ -22,7 +22,7 @@ Since I have lived in 5 different country on 4 continents, I cannot stay in plac
 
 **Asia Pacific 🏯🦘** : Taiwan, Japan, Singapore, HK, Australia
 
-**America 🗽** : SF or NY
+**North America 🗽** : SF, NY or MTL
 
 Of course I am also open to full remote 
 
