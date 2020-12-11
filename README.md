@@ -16,7 +16,7 @@ I have also know **Bash**, **Python**, and **C / C++**
 I also use these fantastic products every day 🤩: **Loom**, **Figma**, **Slack**, **Notion**
 
 ### Open to relocate ✈️🌍
-Since I have lived in 5 different country on 4 continents, I cannot stay in place 🏃‍♂️
+Since I have visited more than 20 countries and lived in 5, I cannot stay in place 🏃‍♂️
 
 **Europe 🏰** : Vienna, Amsterdam, London
 
